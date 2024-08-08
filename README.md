@@ -1,0 +1,1 @@
+# Stpa_STRIDE_Business_Ontologies
